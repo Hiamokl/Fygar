@@ -1,0 +1,3 @@
+- -👽Hey I'm Fygar
+- -🐱‍💻14 yo
+- -🐍Interested in python and ethical hacking
